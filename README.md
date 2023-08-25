@@ -1,4 +1,4 @@
 # DEMO
 
 
-Soundar Rajan is good learner
+Soundar Rajan is good learner and hard worker
